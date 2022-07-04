@@ -6,7 +6,8 @@
 
 ### Първа Стъпка
 
-Кликнете линка -> 
+Кликнете линка -> https://drive.google.com/file/d/1F3A3UEnKMJdtuVP17uik3Y2218TjDxVR/view?usp=sharing
+
 
 ### Втора стъпка
 
